@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VinayakGS
+- 👀 I’m interested in ...Full Stack Web Developing and Cyber security
+- 🌱 I’m currently learning ...Frontend development and Ethical Hacking Basics
+- 💞️ I’m looking to collaborate on ... doing teamwork😉, developing new projects , learning with each other
+- 📫 How to reach me ...via Gmail- gsvinayak8@gmail.com
